@@ -6,7 +6,7 @@
 ![image](https://github.com/cnahha10year/ciyun/assets/157264939/4350b2c7-2828-4c58-b58c-de72f915c2bd)
 
 ## 慈云数据官网地址
-[点击访问慈云数据官网](https://www.zovps.com/aff/NTBXOLUE)
+[www.zovps.com](https://www.zovps.com/aff/NTBXOLUE)
 
 ## 慈云数据优惠码
 使用优惠码 [NEWUSER10](https://www.zovps.com/aff/NTBXOLUE) 可享受新用户首次购买任意产品方案9折优惠。
